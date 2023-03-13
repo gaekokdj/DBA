@@ -1,1 +1,1 @@
-# DBA 권동준
+# irreplaceable DBA DJK
